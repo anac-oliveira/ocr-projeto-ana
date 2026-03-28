@@ -1,0 +1,1 @@
+# ocr-projeto-ana
